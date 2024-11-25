@@ -1,1 +1,7 @@
-# Hello World
+# Sam Swatman
+
+## Personal Statement
+
+## Education
+
+## work Expirience
