@@ -1,7 +1,10 @@
 # Sam Swatman
-
+Phone Number: +44 7804 483143
+Email Address: samswatman@icloud.com
 ## Personal Statement
 
 ## Education
 
-## work Expirience
+## Work Expirience
+
+## Personal Experience 
